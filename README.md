@@ -2,7 +2,7 @@
 
 <img src="https://64.media.tumblr.com/df4f98729238f2e9526a87b6bafb002a/3e5e9a9856de5948-5d/s2048x3072/23e690039b4d162770097bb877ccbd7fb3c19ce2.pnj" width="290" height="20" alt="Description"> <br>
 <img src="https://file.garden/Z4_uMXj5okOfzfmz/IMG_6598" width="20" height="20" alt="Description"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=12&duration=1550&pause=1100&delay=0&color=FFFFFF&background=FFFFFF00&width=290&height=19&lines=I've+made+peace+with+the+fact+that+;I'm+a+lowly%2C+stupid%2C+insignificant+human+;who+can't+do+anything+right." alt="Typing SVG" /></a><br>
-<img src="https://file.garden/Z4_uMXj5okOfzfmz/IMG_6596" width="110" height="150" alt="Description"><img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled16_20261119141149.png" width="190" height="150" alt="Description">
+<img src="https://file.garden/Z4_uMXj5okOfzfmz/IMG_6596" width="109" height="150" alt="Description"><img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled16_20261119141149.png" width="180" height="150" alt="Description">
 <table>
 <tr>
 <td style="vertical-align: top;">
