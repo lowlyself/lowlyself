@@ -13,7 +13,7 @@
     <b>any</b> prns. <img src="https://file.garden/Z4_uMXj5okOfzfmz/ii2cgh" alt="Pen" width="20" height="20"> 20病◞ <br>
 ꒱ ᷃₊<code><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=15&duration=1550&pause=1100&color=FFFFFF&background=00000049&width=65&height=30&lines=%EF%BD%A1%E1%B4%97%F0%93%88%92+%F0%93%89%B8%E0%BE%80%E0%BD%B2+%CD%9C%CD%9C+%DD%83" alt="Typing SVG" /></a></code>  ܸ┊ 
    <sub><img src="https://file.garden/Z4_uMXj5okOfzfmz/fjtnh3" alt="Pen" width="20" height="20">..<br>
- <img src="https://file.garden/Z4_uMXj5okOfzfmz/IMG_6621" width="20" height="20" alt="Description">  . ༢  <a href="https://github.com/hollow-cirque">zan</a>, <b><a href="https://github.com/embalmcinth">vik</a></b>, <a href="https://github.com/b0nelessgh0st">rei</a>, <a href="https://github.com/l0sst1meMemory">ren</a> 🤍</sub><br>
+ <img src="https://file.garden/Z4_uMXj5okOfzfmz/IMG_6621" width="20" height="20" alt="Description">  . ༢  my doctor → <b><a href="https://github.com/embalmcinth">vik</a></b> 🤍</sub><br>
     <sub><img src="https://file.garden/Z4_uMXj5okOfzfmz/IMG3992" width="80" height="30" alt="Description">read straw⁎̯͡ </sub>
   </div>
 </td>
