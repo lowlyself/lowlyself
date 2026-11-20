@@ -29,6 +29,5 @@ MDNI, c+h with friends, whisp ok. <b>♡</b><br>
 <a href="https://mika.atabook.org"><img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled26_20261029033220-ezgif.com-effects.png" width="100" height="23" alt="Description"></a> <img src="https://file.garden/Z4_uMXj5okOfzfmz/IMG_6595" width="20" height="20" alt="Description"> <a href="https://anaxa.straw.page/"><img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled26_20261029032438-ezgif.com-effects.png" width="120" height="25" alt="Description"></a>
 </div></a>
 <div id="text" align="center">
-  <img src="https://file.garden/Z4_uMXj5okOfzfmz/dialog12" width="160" height="100" alt="Description"><br>
 <sub>art credits : <code><a href="https://x.com/Cocoa195307">1</a> <a href="https://x.com/wao_8383">2</a></code></sub><br>
   </div> 
