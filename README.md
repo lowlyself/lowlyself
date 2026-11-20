@@ -2,7 +2,7 @@
 
 <img src="https://64.media.tumblr.com/df4f98729238f2e9526a87b6bafb002a/3e5e9a9856de5948-5d/s2048x3072/23e690039b4d162770097bb877ccbd7fb3c19ce2.pnj" width="290" height="20" alt="Description"> <br>
 <img src="https://file.garden/Z4_uMXj5okOfzfmz/IMG_6598" width="20" height="20" alt="Description"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=12&duration=1550&pause=1100&delay=0&color=FFFFFF&background=FFFFFF00&width=290&height=19&lines=I've+made+peace+with+the+fact+that+;I'm+a+lowly%2C+stupid%2C+insignificant+human+;who+can't+do+anything+right." alt="Typing SVG" /></a><br>
-<img src="https://file.garden/Z4_uMXj5okOfzfmz/IMG_6596" width="109" height="150" alt="Description"><img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled16_20261119141149.png" width="180" height="150" alt="Description">
+<img src="https://file.garden/Z4_uMXj5okOfzfmz/IMG_6596" width="100" height="150" alt="Description"><img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled16_20261119141149.png" width="170" height="150" alt="Description">
 <table>
 <tr>
 <td style="vertical-align: top;">
@@ -14,11 +14,13 @@
 ꒱ ᷃₊<code><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=15&duration=1550&pause=1100&color=FFFFFF&background=00000049&width=65&height=30&lines=%EF%BD%A1%E1%B4%97%F0%93%88%92+%F0%93%89%B8%E0%BE%80%E0%BD%B2+%CD%9C%CD%9C+%DD%83" alt="Typing SVG" /></a></code>  ܸ┊ 
    <sub><img src="https://file.garden/Z4_uMXj5okOfzfmz/fjtnh3" alt="Pen" width="20" height="20">..<br>
  <img src="https://file.garden/Z4_uMXj5okOfzfmz/IMG_6621" width="20" height="20" alt="Description">  . ༢  <a href="https://github.com/hollow-cirque">zan</a>, <b><a href="https://github.com/embalmcinth">vik</a></b>, <a href="https://github.com/b0nelessgh0st">rei</a>, <a href="https://github.com/l0sst1meMemory">ren</a> 🤍</sub><br>
-    yaapyap
+    <sub><img src="https://file.garden/Z4_uMXj5okOfzfmz/IMG3992" width="80" height="30" alt="Description">read straw⁎̯͡ </sub>
   </div>
 </td>
 </tr>
 </table>
+<img src="https://64.media.tumblr.com/aee3cadf7c4409afaf91e3b8b4c89887/0d6cdf0e7d1db038-c7/s2048x3072/f962d4ea3babe91782b583740cca3607837627de.gifv" width="260" height="20" alt="Description"><br>
+MDNI, c+h with friends, whisp ok. <b>♡</b><br>
 <img src="https://64.media.tumblr.com/43412bd26f80d43b993ffbc05d082ca5/0f0b4a3082d72b63-0f/s1280x1920/c3b8ef70b7dc4c4c52a7107c886dbca0e0c028f4.pnj" width="60" height="20" alt="Description"><br>
 <img src="https://64.media.tumblr.com/667fd83adce25239173c6a374e88ae27/0f0b4a3082d72b63-7b/s400x600/c0fe3eb6072a1bd662f374da498dadd6c69bd2c0.gifv" width="60" height="60" alt="Description"><img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled36_20261119134759.png" width="60" height="60" alt="Description"><img src="https://64.media.tumblr.com/d74de08cbabc3e5bdb7c91e9375d96b5/0f0b4a3082d72b63-af/s400x600/ebfa3eba0cecad37f1c113a18665fee2b4ee0ba1.gifv" width="60" height="60" alt="Description">
 
@@ -27,5 +29,6 @@
 <a href="https://mika.atabook.org"><img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled26_20261029033220-ezgif.com-effects.png" width="100" height="23" alt="Description"></a> <img src="https://file.garden/Z4_uMXj5okOfzfmz/IMG_6595" width="20" height="20" alt="Description"> <a href="https://anaxa.straw.page/"><img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled26_20261029032438-ezgif.com-effects.png" width="120" height="25" alt="Description"></a>
 </div></a>
 <div id="text" align="center">
+  <img src="https://file.garden/Z4_uMXj5okOfzfmz/dialog12" width="160" height="100" alt="Description"><br>
 <sub>art credits : <code><a href="https://x.com/Cocoa195307">1</a> <a href="https://x.com/wao_8383">2</a></code></sub><br>
   </div> 
